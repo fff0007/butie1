@@ -72,8 +72,4 @@ w
 
 
 
-
-
-
-
-CoR1QR
+gSOkvAg
